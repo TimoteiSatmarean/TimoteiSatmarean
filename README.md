@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TimoteiSatmarean
+- 👀 I’m interested in programming, stock, crypto, survival, bushcraft, farming, homesteading.
+- 🌱 I’m currently learning CSS.
+- 💞️ I’m looking to collaborate on freelancing.
+- 📫 How to reach me 
